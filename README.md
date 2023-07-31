@@ -1,1 +1,1 @@
-shinning crack east slight welcome unless replace nearby liquid impossible development event meat sale carry
+highway bone pain examine movement weight slipped carefully rest school steep slipped plane tried north
