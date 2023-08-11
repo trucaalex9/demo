@@ -1,1 +1,1 @@
-cheese understanding dollar deeply chemical duck sun share mathematics onto owner pleasant fierce asleep many
+white explanation handsome later able against knowledge out easily affect warm involved origin sort theory
