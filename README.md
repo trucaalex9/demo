@@ -1,1 +1,1 @@
-angry powerful equipment after top pride any shade porch shade chose exist house signal health
+indeed long roar nest smile prepare feel play music west drop remove town foot opinion
