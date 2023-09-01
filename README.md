@@ -1,1 +1,1 @@
-waste help important pink one early stranger father slipped religious tears rocket arrangement consonant swing
+sure law welcome vast cook accurate sweet empty correct air couple fighting laid will giving
