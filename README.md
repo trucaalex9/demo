@@ -1,1 +1,1 @@
-remain small listen cover usually cent automobile wealth produce electric shadow sentence walk wife themselves
+telephone power daily snow cool calm game bone trunk protection hurt weak basis came bent
