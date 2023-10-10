@@ -1,1 +1,1 @@
-telephone power daily snow cool calm game bone trunk protection hurt weak basis came bent
+writer allow low breakfast nodded represent torn sale wonderful inside income wind rich elephant broad
