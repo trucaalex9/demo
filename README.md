@@ -1,1 +1,1 @@
-apple pet enter struck apartment near also evidence care independent third anyway large to class
+various travel themselves various shall heading slight later throat golden over political quiet aloud however
