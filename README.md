@@ -1,1 +1,1 @@
-dig price tell price bill property distance classroom circus large indicate do memory shadow no
+pay few prize glass leaf slept stiff state former receive thought hope youth course willing
