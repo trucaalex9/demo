@@ -1,1 +1,1 @@
-worry greater done star while dirt pain person salt pass flat pie floor experience fierce
+safe such spoken welcome gold addition quickly tea past locate white major gulf root let
