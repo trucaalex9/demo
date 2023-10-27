@@ -1,1 +1,1 @@
-safe such spoken welcome gold addition quickly tea past locate white major gulf root let
+cap reach origin both angry definition check table before missing vote parallel finest black pilot
