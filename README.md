@@ -1,1 +1,1 @@
-detail property knew ten golden frozen week favorite instead hold percent happy across between we
+leaf country tried pressure smaller sight society question ate neck herd hot interior label whistle
