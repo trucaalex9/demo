@@ -1,1 +1,1 @@
-deer high smallest why general colony breathing bush at wise floating hot known purpose kill
+dance speak dream steady frighten tears funny field distant essential wonder popular hold getting degree
