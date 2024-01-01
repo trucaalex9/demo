@@ -1,1 +1,1 @@
-dance speak dream steady frighten tears funny field distant essential wonder popular hold getting degree
+everybody lying all fireplace cause sold get loose drive truck neighbor part cold mile central
