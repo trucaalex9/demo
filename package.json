@@ -1,12 +1,9 @@
 {
   "name": "demonoid",
-	"version": "1.0.0",
-	"author": "trucaalex9",
-	"license": "ISC",
-	"repository": {
-		"type": "git",
-	 	"url": "git+https://github.com/trucaalex9/demonoid.git"
-	},
+  "version": "1.0.1",
+  "author": "trucaalex9",
+  "license": "ISC",
+  "repository": "https://github.com/trucaalex9/demonoid.git",
   "scripts": {
     "serve": "vue-cli-service serve",
     "build": "vue-cli-service build",
