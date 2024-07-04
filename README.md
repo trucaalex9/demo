@@ -1,1 +1,1 @@
-according friendly victory birth western town hit slight proud suppose fire has muscle younger above
+command them fight tip lower listen active went higher community eye possibly mirror ready failed
